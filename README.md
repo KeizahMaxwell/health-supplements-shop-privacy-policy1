@@ -1,5 +1,6 @@
 Privacy Policy
-.
+
+
 Health Supplements Shop – Vitamins & Wellness Store is a free mobile application developed by Keizah Maxwell.
 This Service is provided at no cost and is intended for use as it is.
 By using this Service, you agree to the collection and use of information in accordance with this Privacy Policy.
